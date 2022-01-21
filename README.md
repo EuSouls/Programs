@@ -1,0 +1,16 @@
+- 👋 oi, I’m @Senki0f1
+- 👀 Repositorio...
+- 🌱 Otimização de pc  ...
+- 📫 Scripts de Otimização ...
+
+
+/start Stylexay.exe ✨
+<!---
+Senki0f1/Senki0f1 is a ✨ repository ✨   its `README.md`
+|| 🎵: Trap, Lo-fi, Love Songs...
+🎮: LoL, Mine, Roblox.Among Us, Kingdom New Lands...
+🈺: 𝖆𝖓𝖎𝖒𝖊𝖘
+🏀: バスケットボール選手
+💸: Configuro PC R$ 10,00 
+₴₮ɎⱠɆӾ₳ɎⱫⱫ || 
+--->
